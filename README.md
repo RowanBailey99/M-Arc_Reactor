@@ -12,6 +12,6 @@ We are happy to offer services for printing and personalisation. Pricing is as f
 
     Full reactor set up (Reactor Box, Base, Carousel of choice and Plug) - £100
     Additional carousel of choice - £15
-    Personalisation, STL Only (Base and carousel) - £20 *Can be puchased in conjunection with reactor print for personalised product*
+    Personalisation, STL Only (Base and carousel) - £20 *Can be purchased in conjunction with reactor print for personalised product*
 
 We encourage modification and use of the reactor and would appreciate any feedback or suggestions you have to offer! 
